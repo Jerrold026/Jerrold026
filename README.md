@@ -1,4 +1,3 @@
-
 Hello everyone!
 
 It's great to have you all here. 🌟[![MasterHead](https://github.com/Jerrold026/Jerrold026/blob/main/github.png)
